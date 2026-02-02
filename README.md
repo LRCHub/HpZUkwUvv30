@@ -1,4 +1,4 @@
-# MAISONdes – なんもない（feat. 星街すいせい、sakuma.）
+# MAISONdes – なんもない
 
 > **歌詞登録ステータス：同期歌詞あり**
 
